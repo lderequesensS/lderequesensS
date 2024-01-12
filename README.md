@@ -1,6 +1,6 @@
 # Hi there!, I'm Leonardo de Requeséns
 
-## Software Engineer based in Chile 🇨🇱 
+## Software Engineer from Chile 🇨🇱 
 - 🌱I like to learn new things, not only related to tech.
 - 🐈🐈‍⬛🐈‍⬛ Dad of three cats (help)
 - 🧙🏻‍♂️ Dungeon master for my family
