@@ -2,10 +2,11 @@
 
 ## Software Engineer from Chile 🇨🇱 
 - 🌱I like to learn new things, not only related to tech.
-- 🐈🐈‍⬛🐈‍⬛ Dad of three cats (help)
+- 🐈🐈‍⬛🐈‍⬛ Owner of three cats (help)
 - 🧙🏻‍♂️ Dungeon master for my family
+    - D&D (BECMI, 2e, 4e)
+    - Mouse Guard
 - 📷Amateur photographer
-- ⏳Too many hobbies, so little time
 
 <div align="center">
     <a href="https://www.linkedin.com/in/lderequesens/" target="_blank">
